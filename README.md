@@ -1,0 +1,1 @@
+Чекать rgr1_report-1.pdf и INFO.md
